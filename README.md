@@ -1,2 +1,0 @@
-# calabresCoin-
-Calabres Coin
